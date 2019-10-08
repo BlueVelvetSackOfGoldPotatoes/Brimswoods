@@ -182,18 +182,28 @@ Leopold lit his cigarette with the tip of his index finger from which a small pi
 "I was bathing in sweet oil while dryads sang to me Leopold, their song would make any mortal jizz themselves immediately. And you pull me from your smelly hat like a shitting rabbit for this? You old sad man."
 "NAMIEL" Leopold squawked the cherubs name as loud as he managed.
 "Aaaaaaaaaaaaaaaaaaaaaaaah!" The babies body froze to a halt.
-"I order you to give me my key. But first summon my mother..."
-Without a word or motion of any sort Namiel invoked the spirit. Sophie was frozen sitting in her sit. She saw it happening - it wasn't what she had dread. Leopolds mother, or what ever that person was, was simply there. She wasn't see through, or terribly scary. She was rather beautiful really. Long ginger hair and a fair face. She was also younger than Leopold by at least 20 years. Leopold looked her in the eyes. 
+"I order you to give me my key. But first summon my mother..." Leopold was sweating. He spoke stoically.
+Without a word or motion of any sort Namiel invoked the spirit. Sophie was mesmerized sitting in her sit at the game table from where she saw the summoning - it wasn't what she had dreaded. Leopolds mother, or what ever that person was, simply appeared there. She wasn't see through, or terribly scary, or floating or anything special. She was rather beautiful though, with long ginger hair and a fair face. She was also younger than Leopold by at least 20 years. Leopold looked her in the eyes. 
 "Fuck, hey. The key mother, I need the key."
-The spirit smiled a weary faint smile and moved towards Leopold slowly, her long wavy white dress covering her feet. Leopolds mother reached into his chest while the floating cherub used his small thick hands to penetrate Leopolds head. Both of their hands went in Leopold as if through thin air and came out with two small black boxes. These contrasted greatly with their milky skin colour.
-"I am going to fucking hate this. Go, do it."
-Both beings produced silver keys, adorned with ivory and clams. They opened eachothers black boxes and Leopold knew everything, again. For the third time in his life he had to unlock his memories. Painful memories of his past and of the universe. The truth and the understanding about himself and of reality was in those boxes. But this was important - this was his lair, his home and he had to bring things to normality, for his own sake. For tomorrows Leopold, so that he could enjoy the safety and comfort of the inn while patiently and ignorantly awaiting some end.
+The spirit smiled a weary faint smile and moved towards Leopold slowly, her long wavy white dress covering her bare feet. Leopolds mother reached into his chest while the floating cherub used his baby fat hands to penetrate Leopolds head. Both of their hands went in Leopold as if through jelly and came out with two small black boxes.
+"Go, do it."
+Both beings produced silver keys, adorned with ivory and clams. They opened eachothers black boxes freeing Leopolds memories. A second after he knew everything, again. For the third time in his life he had to unlock his memories. Painful memories of his past, present and future - of the universe. The truth and the understanding about himself and of reality was in those boxes. But this was important - this was his lair, his home and he had to bring things to normality again, for his own sake. For tomorrows Leopold, so that he could enjoy the safety and comfort of the inn while patiently and ignorantly awaiting for some end. He needed the memory erasing spell that ironically he had forgotten all about.
 "..."
-Leopold sent Grant and the group of drunk man outside of the inn with his magic. And then:
-"Ram Pum Tim, Mit Mup Mar"
-A flash followed and the memories faded once again. Leopolds and everyone elses together vanished from the inn as did Namiel and the ghost. Reality continued smoothly for drunks and sober people alike.
+Leopold sighted. Then started to cry. And finally he wailled and sobbed until he couldn't breath no more. His mother tried to comfort him to no avail, because her hands would just sink into him, never really touching Leopolds physical body.
+He sighted, cleaning his face with his night cape and smiled at her failed efforts.
+Then Leopold kicked Grant and the group of drunk man from the inn with his magic after cleasing their memory of the event. 
+"Ram Pum Tim, Mit Mup Mar - such a simple fucking thing, trivial Leopold, it was trivial" He lectured himself.
+A flash followed and the memories faded once again. Leopolds and everyone elses together vanished from the inn as did Namiel and the ghost. Reality continued as per usual, for drunks and sober people alike.
+Junia looked at Leopold who was sitting infront of her, again, at the game table and exclamed.
+"I think you pissed my pants Leopold, you cheeky cunt" Leopold chuckled
+"oh my oh my, do you need help there Junia?"
+"Junia!" Sophie helped the old woman up and took her to her room in the inn's third floor.
+"You're worst than a babe gods damn me, comeon now"
+"I didn't do it! That old cricket did it I tell you - ahahahahah"
+"Oh jeez." Leopold looked down at his hands. He noticed that his ring marked three. A rush of adrenaline kissed his body from head to toes.
+"Fuck me - not again"
 Outside of the inn Grant laid unconscious on the mud while the group of drunk men stumbled to their feet.
-"Shit, my foot. I think me foot is broken!"
+"Shit, me foot. I think me foot is broken!"
 "Ye pussy, ye want me to carry ye Lary?"
 "Fuck ye John, I think it's really broken! What the fuck!" 
 "Shit my head hurts" A third one admitted.
@@ -203,13 +213,11 @@ Outside of the inn Grant laid unconscious on the mud while the group of drunk me
 "Nah, no way." Lary tried to walk on his broken foot.
 "Aaaaah, shit, shit, shit, my fucking foot. I can't"
 "Ahahahahaha, ok Lary, comeon I ma help ye mate ahahahahah"
-"Put me down Bron! You arse, you stupid potato head!"
-"A donkeys arse? ahahahahaha" Large Bron placed Lary on top of the donkey, led the donkey out of its stable and slapped it hard on the rear.
-"Get well soon Lary! Ahahahahah" Lary yelled some more obsceneties and the group of man walked inside the inn laughing gravely at their peers prank.
-When Grant woke up, drunk and slow, he supposed he had gotten so drunk that he must have done something awful inside the inn that got himself kicked out. He could not see his jenny. He searched and searched, looking each horses face. After completing this verification for the third time he believed his donkey had been eaten by fairies. He started walking in no particular direction while tears streamed down his rough muddy face.
-"WHAT IS GRANT THINKING"
+"Put me down Bron! You arse, you potato head!"
+"A donkeys arse? ahahahahaha" Large Bron placed Lary on top of the donkey, led it out of its stable and slapped it hard on the rear.
+"Get well soon Lary! Ahahahahah" Lary yelled some more obsceneties and the group of man walked inside the inn laughing gravely.
+When Grant woke up, drunk and slow, he supposed he had gotten so drunk that he must have done something awful inside the inn that got him thrown out. Not very far from the truth, he was about to leave when he realized he was missing his jenny. He searched and searched, looking each horse in the face. After looping through the horses for the third time he was convinced that his donkey had been eaten by fairies. He started zig-zagging in no particular direction and for a moment a single tear formed and streamed down his rough muddy face.
+"Oh by the Gods - hiccup - why? Why my Jenny and not their horses... They have more meat to them, their smell is - hiccup - stronger and they're louder... Oh jenny, they ate you. Oh my Gods, they ate you. Those hovering bastards, I swear to you - hiccup - I'll - hiccup - I'll get their shrunken kings and queens. And I'll make soup out of them!"
+Grant walked and walked with no destination in mind. He walked his drunkness away and now he was thirsty and very tired. Sleep fell on him like an iceberg, and since he couldn't stand its weight he laid down right there and then. He laid on his back on a cold bed of grass and his consciousness drifted with the breeze to a far away place, leaving his lousy bulky body behind.
 
-Leopold gets his heart box - to do this he summons the kid and the woman, he gets the spell from there. 
-Describe how the people feel. 
-He does the spell, they loose their memory.
- Outside, blah blah blah.
+GRANT WAKES UP TO THE SOUND OF MUSIC - THIS MUSIC IS HAPPENING INSIDE OF HIS HEAD. DESCRIBE LOVE AT FIRST SIGHT | DESCRIBE IT NEUROLOGICALLY AND THEN SENTIMENTALLY FOLLOWED BY ANALOGY | 
